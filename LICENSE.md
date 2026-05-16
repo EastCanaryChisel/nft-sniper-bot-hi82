@@ -1,4 +1,4 @@
-# 
+# nft sniper bot secure Bot - wash-trading-detection and real-time-monitoring offers the most advanced nft sniper bot, with wash-trading-detection and real-time-monitoring. Ideal
 
 
 
